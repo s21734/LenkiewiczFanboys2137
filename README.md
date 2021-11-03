@@ -1,4 +1,4 @@
-# LenkiewiczFanboys69
+# LenkiewiczFanboys
 
 
 Japonio przyszła ojczyzno moja,
